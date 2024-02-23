@@ -1,1 +1,1 @@
-# solcyn
+# sscomputers.com
